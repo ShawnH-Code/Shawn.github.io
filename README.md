@@ -1,1 +1,0 @@
-# syoushou.github.io
